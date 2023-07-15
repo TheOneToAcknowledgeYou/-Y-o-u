@@ -1,10 +1,3 @@
-- 👋 Hi, I’m @DiscordRevenger
-- 👀 I’m interested in Good, Non- Virus Token Grabber
-- 🌱 I’m currently learning well.. where i can find a good Token Grabber
-- 📫 How to reach me Discord be the Best: MCFortniteAffe2012#6796
-- Im not tryna grab your Token unless your a a recist, Nazi.. all that kind of stuff.
+Im here. Watching you. Lookin if you are the right one. A Brightminded person with a High intellect. Ready to beat the Puzzles that lead the Path to us.
 
-<!---
-DiscordRevenger/DiscordRevenger is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+To start. Add me: _0x5 Discord.
